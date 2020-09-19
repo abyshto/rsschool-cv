@@ -18,6 +18,7 @@ Unfortantely, I have not any programming knowledge, but I want to know more tech
 
 
 ## Education
+Belarusian State Medical University
 
 
 ## Languages
